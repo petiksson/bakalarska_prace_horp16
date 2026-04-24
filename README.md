@@ -1,1 +1,0 @@
-# bakalarska_prace_horp16
